@@ -1,10 +1,13 @@
 # NOIZYFISH 🐟
 
+> **NOIZYFISH.COM is the new FISHMUSICINC** — Full succession effective immediately.
+> noizyfish.com replaces fishmusicinc.com as the sovereign label infrastructure domain.
+
 > **THE REVOLUTION WILL SOUND LIKE YESTERDAY**
 >
 > Living Legacy Vault · Creative Services Hub · Museum-Grade Music Catalog
 >
-> Part of the **[MC96ECO Universe](https://noizy.ai)** — 6 brands, 1 doctrine, 0 compromises.
+> Part of the **[MC96ECO Universe](https://noizy.ai)** — 10 brands, 1 doctrine, 0 compromises.
 >
 > ---
 >
